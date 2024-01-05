@@ -8,7 +8,7 @@ nav_order: 1
 ## Spring 2024
 ## Professor Lindsay Thomas
 <lthomas@cornell.edu><br>
-<https://lindsaythomas.net/>
+<a href="https://lindsaythomas.net/" target="blank">
 
 ## Course Info
 MW 10:10-11:25 am <br/>
