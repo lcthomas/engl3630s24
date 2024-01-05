@@ -45,11 +45,11 @@ There are many ways to participate in this class, including:
 ### Historical Context Essay (20%)
 5 page essay placing one of the course novels, essays, or poems in its historical context. Prompts will be circulated in advance.
 
-### Final Essay Presentation (10%)
-5-10 minute presentation to the class about your final essay topic and argument.
-
 ### Final Essay Proposal (5%)
 1 page proposal for your final essay.
+
+### Final Essay Presentation (10%)
+5-10 minute presentation to the class about your final essay topic and argument.
 
 ### Final Essay (25%)
 8-10 page essay developing an original argument on a topic and course text(s) of your choosing, involving historical research and research on the critical and scholarly conversations about your text(s) of choice.
