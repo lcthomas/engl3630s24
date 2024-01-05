@@ -7,7 +7,7 @@ nav_order: 1
 # US Literature and the End of the American Century
 ## Spring 2024
 ## Professor Lindsay Thomas
-<lthomas@cornell.edu>
+<lthomas@cornell.edu><br>
 <https://lindsaythomas.net/>
 
 ## Course Info
