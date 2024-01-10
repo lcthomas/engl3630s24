@@ -27,8 +27,8 @@ If you can afford the below books, please purchase them in hard copy form. I hav
 Please bring the assigned reading with you every day to class.
 
 ## Course Requirements
-### Active Participation (10%)
-You are expected to come to class having completed the reading and assignments listed for each day and prepared to discuss it. Your successful participation in class depends on your preparation. Be sure to complete the reading and other assignments for each class session.
+### Attendance and Active Participation (10%)
+You are expected to come to class having completed the reading and assignments listed for each day and prepared to discuss it. Your successful participation in class depends on your preparation. Be sure to complete the reading and other assignments for each class session. More than 3 unexcused absences will affect your grade. More than 3 late arrivals will count as an absence.
 
 There are many ways to participate in this class, including:
 
