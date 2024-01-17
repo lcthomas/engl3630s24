@@ -89,16 +89,16 @@ I reserve the right to change the course calendar as needed; adequate advance no
     * Start with Preface, end with “So he scratched a hole in the dry sand beside him, and when the glare of that light finally blinded him, he turned to his right side and vomited into the hole.”
 
 ### Wednesday, March 13
-* Leslie Marmon Silko, *Ceremony* (1977), pgs 27-85
-    * Start with “When he got off the train at New Laguna, his legs were shaky...” and end with “...‘Pepper got run over on the highway, chasing some she-dog in heat’.”
+* Library session
 
 ## Week 9
 ### Monday, March 18
-* Leslie Marmon Silko, *Ceremony* (1977), pgs 85-186
-    * Start with “He remembered when his mother died,” and end with “...maybe it would be too much trouble, and they would let him go.”
+* Leslie Marmon Silko, *Ceremony* (1977), pgs 27-85
+  * Start with “When he got off the train at New Laguna, his legs were shaky...” and end with “...‘Pepper got run over on the highway, chasing some she-dog in heat’.”
 
 ### Wednesday, March 20
-* Library session
+* Leslie Marmon Silko, *Ceremony* (1977), pgs 85-186
+  * Start with “He remembered when his mother died,” and end with “...maybe it would be too much trouble, and they would let him go.”
 
 ## Week 10
 ### Monday, March 25
