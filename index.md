@@ -15,7 +15,7 @@ MW 10:10-11:25 am <br/>
 Sibley Hall 208
 
 ## Office Hours
-T 2-4 pm, and by appointment <br/>
+M 1-3 pm, and by appointment <br/>
 282 Goldwin Smith
 
 ## Course Description

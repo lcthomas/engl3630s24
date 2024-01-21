@@ -82,9 +82,9 @@ I reserve the right to change the course calendar as needed; adequate advance no
 
 ## Week 8
 ### Monday, March 11
+* Roxanne Dunbar-Ortiz, “Introduction: This Land,” from An Indigenous Peoples’ History of the United States (2014), pgs 1-14
 * Selections from Richard H. Pratt, “The Advantages of Mingling Indians with Whites,” from *Official Report of the Nineteenth Annual Conference of Charities and Correction* (1892), pgs 46-59; reprinted in *Americanizing the American Indian: Writings by “Friends of the Indian,” 1880-1900*, ed. Francis Paul Prucha (1973)
 * Senate Committee on Labor and Public Welfare, “Indian Education: A National Tragedy – A National Challenge” (1969), Foreword and Summary (pgs ix-xiv)
-* Roxanna Asgarian, “How a white evangelical family could dismantle adoption protections for Native children,” *Vox* (Feb 20, 2020), <https://www.vox.com/identities/2020/2/20/21131387/indian-child-welfare-act-court-case-foster-care>
 * Leslie Marmon Silko, *Ceremony* (1977), pgs xi-26 (including Preface and Introduction)
     * Start with Preface, end with “So he scratched a hole in the dry sand beside him, and when the glare of that light finally blinded him, he turned to his right side and vomited into the hole.”
 
@@ -147,7 +147,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 * Judith Butler, “Torture and the ethics of photography,” *Environment and Planning D: Society and Space* vol. 25 (2007): 951-966
 
 ### Wednesday, April 24
-* Selections, Hassan Blasim, *The Corpse Exhibition*
+* Selections, Hassan Blasim, *The Corpse Exhibition* (2014)
 
 ## Week 15
 ### Monday, April 29
