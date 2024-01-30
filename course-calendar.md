@@ -29,19 +29,19 @@ I reserve the right to change the course calendar as needed; adequate advance no
 
 ## Week 3
 ### Monday, February 5
-* John Okada, *No No Boy* (1957), Foreword, Introduction, Preface, Ch 1-3 (pgs vii - 63)
+* John Okada, *No-No Boy* (1957), Foreword, Introduction, Preface, Ch 1-3 (pgs vii - 63)
 * Franklin D. Roosevelt, “Executive Order No. 9066” (1942)
 * Franklin D. Roosevelt Presidential Library and Museum, “FDR and Japanese American Internment” (1941-2)
 
 ### Wednesday, February 7
-* John Okada, *No No Boy* (1957), Ch 4-5 (pgs 64-105)
+* John Okada, *No-No Boy* (1957), Ch 4-5 (pgs 64-105)
 
 ## Week 4
 ### Monday, February 12
-* John Okada, *No No Boy* (1957), Ch 6-9 (pgs 106-189)
+* John Okada, *No-No Boy* (1957), Ch 6-9 (pgs 106-189)
 
 ### Wednesday, February 14
-* John Okada, *No No Boy* (1957), Ch 10-11, Afterword (pgs 190-232)
+* John Okada, *No-No Boy* (1957), Ch 10-11, Afterword (pgs 190-232)
 
 ### Friday, February 16
 * **Close Reading Essay 1 due**
