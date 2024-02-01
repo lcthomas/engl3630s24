@@ -39,6 +39,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 ## Week 4
 ### Monday, February 12
 * John Okada, *No-No Boy* (1957), Ch 6-9 (pgs 106-189)
+* William Petersen, "Success Story, Japanese-American Style," *The New York Times Magazine*, January 9, 1966
 
 ### Wednesday, February 14
 * John Okada, *No-No Boy* (1957), Ch 10-11, Afterword (pgs 190-232)
