@@ -61,10 +61,10 @@ I reserve the right to change the course calendar as needed; adequate advance no
 ### Wednesday, February 28
 * Paul Goodman, “A Young Pacifist” (1967)
 * James Baldwin, “The War Crimes Tribunal” (1966)
-* Jeremiah Kim, “I Am Not Your American: Reviving James Baldwin’s Opposition to U.S. Empire,” Cornell Daily Sun, Oct 10, 2018, <https://sunspots.cornellsun.com/2018/10/10/on-my-mind-i-am-not-your-american-reviving-james-baldwins-opposition-to-u-s-empire/>
+* Jeremiah Kim, “I Am Not Your American: Reviving James Baldwin’s Opposition to U.S. Empire,” *Cornell Daily Sun*, Oct 10, 2018, <https://sunspots.cornellsun.com/2018/10/10/on-my-mind-i-am-not-your-american-reviving-james-baldwins-opposition-to-u-s-empire/>
 * Angela Davis, “The Liberation of Our People” (1969)
-* Newsreels on anti-Vietnam War protests in 1967 and 1968 (2:08 min):
-    * April 18, 1967, <https://www.youtube.com/watch?v=gB0CNTdYOXE>
+* Newsreels on anti-Vietnam War protests in 1967 and 1968:
+    * April 18, 1967 (2:08 min), <https://www.youtube.com/watch?v=gB0CNTdYOXE>
     * Anti-Vietnam Protests at DNC, Aug 28, 1968, ABC News (3:51 min) <https://abcnews.go.com/Archives/video/aug-28-1968-anti-vietnam-protests-10690501>
 
 ## Week 7
