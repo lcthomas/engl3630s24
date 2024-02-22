@@ -63,7 +63,9 @@ I reserve the right to change the course calendar as needed; adequate advance no
 * James Baldwin, “The War Crimes Tribunal” (1966)
 * Jeremiah Kim, “I Am Not Your American: Reviving James Baldwin’s Opposition to U.S. Empire,” *Cornell Daily Sun*, Oct 10, 2018, <https://sunspots.cornellsun.com/2018/10/10/on-my-mind-i-am-not-your-american-reviving-james-baldwins-opposition-to-u-s-empire/>
 * Angela Davis, “The Liberation of Our People” (1969)
-* Newsreels on anti-Vietnam War protests in 1967 and 1968:
+* "Vietnam: The War at Cornell" (2015) (10:57), <http://static.as.cornell.edu/150/vietnam.html>
+    * This video is positioined on the page under the heading "The Vietnam War on Campus, Revisited"
+* Recommended: Newsreels on anti-Vietnam War protests in 1967 and 1968:
     * April 18, 1967 (2:08 min), <https://www.youtube.com/watch?v=gB0CNTdYOXE>
     * Anti-Vietnam Protests at DNC, Aug 28, 1968, ABC News (3:51 min) <https://abcnews.go.com/Archives/video/aug-28-1968-anti-vietnam-protests-10690501>
 
