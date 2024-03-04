@@ -93,6 +93,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 
 ### Wednesday, March 13
 * Library session
+* Please read through the [Historical Context Essay assignment](https://lindsaythomas.net/engl3630s24/assignments/historical-context.html){:target="_blank"} before class.
 
 ## Week 9
 ### Monday, March 18
