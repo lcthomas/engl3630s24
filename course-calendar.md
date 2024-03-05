@@ -75,7 +75,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 * Viet Thanh Nguyen, “On True War Stories,” from *Nothing Ever Dies: Vietnam and the Memory of War* (2016)
 
 ### Wednesday, March 6
-* Gwendolyn Brooks, “the mother” (1963), <https://www.poetryfoundation.org/poems/43309/the-mother-56d2220767a02>
+* Gwendolyn Brooks, “the mother” (1945), <https://www.poetryfoundation.org/poems/43309/the-mother-56d2220767a02>
 * Anne Sexton, “The Abortion” (1962), <http://famouspoetsandpoems.com/poets/anne_sexton/poems/18154>
 * Anne Sexton, “Menstruation at Forty” (1966), <https://www.poetryfoundation.org/poems/42572/menstruation-at-forty>
 * Lucille Clifton, “the lost baby poem” (1972), <https://www.poetryfoundation.org/poems/53239/the-lost-baby-poem>
