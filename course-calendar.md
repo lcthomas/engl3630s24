@@ -92,7 +92,8 @@ I reserve the right to change the course calendar as needed; adequate advance no
     * Start with Preface, end with “So he scratched a hole in the dry sand beside him, and when the glare of that light finally blinded him, he turned to his right side and vomited into the hole.”
 
 ### Wednesday, March 13
-* Library session
+* Library session in Uris Library Classroom B05: Please bring a laptop with you to class.
+    * Our class will meet today in Uris Library Classroom B05. Here's how to find the room: The easiest way to find it is to enter through the doors beneath the clock tower – don't mind the scaffolding – walk through the contactless pickup room and take an immediate left as you exit it. The Classroom is right there. You can also reach it via the main Uris entrance: from the Uris lobby, take the staircase down to the next level and walk straight to the end of the hall. There are signs along the way. 
 * Please read through the [Historical Context Essay assignment](https://lindsaythomas.net/engl3630s24/assignments/historical-context.html){:target="_blank"} before class.
 
 ## Week 9

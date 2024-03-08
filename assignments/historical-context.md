@@ -5,6 +5,9 @@ nav_order: 3
 parent: Assignments
 ---
 # Historical Context Essay
+## Resources
+- [Library research guide for ENGL 3630](https://guides.library.cornell.edu/english3630lt){:target=_"blank}, prepared by Fred Muratori
+
 ## Due Dates
 - Central research question due by class on Monday, March 25 (submit via email)
 - Essay due Friday, March 29 by the end of the day (submit via Canvas)
@@ -39,7 +42,7 @@ After selecting the text you want to write about, you should formulate a central
 You should submit this question to me via email by class on **Monday, March 25.**
 
 ## Conducting Research
-On Wednesday, March 13, Fred Muratori from Cornell University Library will lead our class in a discussion of how to utilize library resources to conduct research for this assignment.
+On Wednesday, March 13, Fred Muratori from Cornell University Library will lead our class in a discussion of how to utilize library resources to conduct research for this assignment. He has prepared a library research guide for our class, which you can find here: <https://guides.library.cornell.edu/english3630lt>. This guide includes a wealth of information about how to find primary and secondary sources relevant to your research question, including information about databases that might be useful for learning about relevant primary sources, including still and moving images, as well as how to find secondary sources such as scholarly books and articles.
 
 There are also a few general strategies you can employ when formulating your central research question and investigating this question further:
 - Conduct further research on an event, document, concept, policy and/or figure we read and/or discuss in class, or that you know about from another class.
