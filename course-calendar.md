@@ -109,6 +109,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 ### Monday, March 25
 * Leslie Marmon Silko, *Ceremony* (1977), pgs 186-244
     * Start with “Black pebbles and the ancient gray cinders the mountain had thrown poked into his backbone,” and end with “Sunrise, / accept this offering, / Sunrise.”
+* Paula Gunn Allen, "Special Problems in Teaching Leslie Marmon Silko's *Ceremony*", *American Indian Quarterly* 14.4 (1990): 379-386
 * **Central research question for historical context essay due by class**
 
 ### Wednesday, March 27
