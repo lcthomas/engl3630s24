@@ -27,4 +27,4 @@ You may find this resource from The Writing Center at the University of Wisconsi
 ## Conducting Research
 Fred Muratori from Cornell University Library has prepared a library research guide for our class, which you can find here: <https://guides.library.cornell.edu/english3630lt>. This guide includes a wealth of information about how to find primary and secondary sources relevant to your research question, including information about databases that might be useful for learning about relevant primary sources, including still and moving images, as well as how to find secondary sources such as scholarly books and articles.
 
-Please note that this essay, unllike your historical context essay, requires you to include secondary scholarship or criticism about the text(s) you are writing about. I ask you to cite a minimum of 3 secondary sources as part of this proposal. 
+Please note that this essay, unlike your historical context essay, requires you to include secondary scholarship or criticism about the text(s) you are writing about. I ask you to cite a minimum of 3 secondary sources as part of this proposal. 
