@@ -16,7 +16,7 @@ Your presentation should be 5-7 minutes long. Please practice your presentation 
 Your presentation should include:
 1. Your 1-2 sentence central research question. Please see the [final essay proposal](https://lindsaythomas.net/engl3630s24/assignments/final-essay-proposal.html){:target="_blank"} assignment page for more details about your central research question.
 2. A discussion of how the historical source(s) you are writing about illuminates your selected literary text(s), or of how your selected literary text(s) illuminates your historical source(s). There are a wide variety of ways to accomplish this, but what I'm looking for here is a detailed, specific discussion of how the "historical context" about which you are writing informs our understanding of the literary text(s) you are writing about, or vice versa.
-3. The discussion described in \# 2 should include an explication of one example -- one point from your argument -- that you think best provides an answer to your central research question. This example will likely include textual evidence from either (or both) your historical source(s) and your literary text(s).
+3. The discussion described in \# 2 should include an explication of one example -- one point from your argument -- that you think best provides an answer to your central research question. This example will likely include textual evidence from either (or both) your historical source(s) and your literary text(s). It may also include summaries or quotes from secondary sources.
 4. At least one issue or question that you are still working on and that you would like some help with from the class.
 
 ## Signing Up for your Presentation Date
