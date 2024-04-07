@@ -36,7 +36,7 @@ You may write about any of the literary texts we read in this class in your fina
 - Silko, *Ceremony*
 - Butler, *Parable of the Sower*
 - Sacco, "Trauma on Loan"
-- Selection from Blasim, *The Corpse Exhibition*
+- Hassan Blasim, "The Iraqi Christ" or "A Thousand and One Knives"
 
 While at least one of the texts you write about must be from this class, you may also choose to write about a literary text we didn't read in this class but that is connected to our course topics and texts. Again, if you elect to write about 2 texts, I encourage you to speak with me about your text selection ideas and process to ensure that your combination makes sense and will set you up for success in this assignment.
 

@@ -93,7 +93,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 
 ### Wednesday, March 13
 * Library session in Uris Library Classroom B05: Please bring a laptop with you to class.
-    * Our class will meet today in Uris Library Classroom B05. Here's how to find the room: The easiest way to find it is to enter through the doors beneath the clock tower – don't mind the scaffolding – walk through the contactless pickup room and take an immediate left as you exit it. The Classroom is right there. You can also reach it via the main Uris entrance: from the Uris lobby, take the staircase down to the next level and walk straight to the end of the hall. There are signs along the way. 
+    * Our class will meet today in Uris Library Classroom B05. Here's how to find the room: The easiest way to find it is to enter through the doors beneath the clock tower – don't mind the scaffolding – walk through the contactless pickup room and take an immediate left as you exit it. The Classroom is right there. You can also reach it via the main Uris entrance: from the Uris lobby, take the staircase down to the next level and walk straight to the end of the hall. There are signs along the way.
 * Please read through the [Historical Context Essay assignment](https://lindsaythomas.net/engl3630s24/assignments/historical-context.html){:target="_blank"} before class.
 
 ## Week 9
@@ -154,7 +154,7 @@ I reserve the right to change the course calendar as needed; adequate advance no
 * Judith Butler, “Torture and the ethics of photography,” *Environment and Planning D: Society and Space* vol. 25 (2007): 951-966
 
 ### Wednesday, April 24
-* Selections, Hassan Blasim, *The Corpse Exhibition* (2014)
+* Hassan Blasim, "The Iraqi Christ" and "A Thousand and One Knives," from *The Corpse Exhibition* (2014)
 
 ## Week 15
 ### Monday, April 29
