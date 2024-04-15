@@ -159,12 +159,29 @@ I reserve the right to change the course calendar as needed; adequate advance no
 ## Week 15
 ### Monday, April 29
 * Presentations
+    1. Katie
+    2. Mairead
+    3. Anya
+    4. Stacey
+    5. Gabriella
+    6. Elena
 
 ### Wednesday, May 1
 * Presentations
+    1. Carolyn
+    2. Cortnee
+    3. Alma
+    4. Jackie
+    5. Kathryn
+    6. Avery
 
 ## Week 16
 ### Monday, May 6
 * Presentations
+    1. Chloe
+    2. Rachel
+    3. Maeve
+    4. Christina
+    5. Madeleine
 
-### Final Essay due TBA
+### Final Essay due Monday, May 13
