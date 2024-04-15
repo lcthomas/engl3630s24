@@ -4,7 +4,7 @@ title: Final Essay Presentation
 nav_order: 5
 parent: Assignments
 ---
-# Final Essay Presentation
+# Final Essay Presentation: 10% of final grade 
 ## Due
 - Monday, April 29; Wednesday, May 1; OR Monday, May 6
 

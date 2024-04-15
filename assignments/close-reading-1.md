@@ -4,7 +4,7 @@ title: Close Reading Essay 1
 nav_order: 1
 parent: Assignments
 ---
-# Close Reading Essay 1
+# Close Reading Essay 1: 15% of final grade 
 ## Due
 - Friday, Feb 16 by the end of the day
 

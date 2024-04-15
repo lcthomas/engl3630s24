@@ -4,7 +4,7 @@ title: Final Essay
 nav_order: 6
 parent: Assignments
 ---
-# Final Essay
+# Final Essay: 25% of final grade 
 ## Resources
 - [Library research guide for ENGL 3630](https://guides.library.cornell.edu/english3630lt){:target=_"blank}, prepared by Fred Muratori
 
